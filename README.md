@@ -1,5 +1,5 @@
 # Traynor Amp Archive
-Offering re-drawn schematics of classic Traynor tube amplifiers from the 1960's and 70's. 
+Offering resources and information on vintage Traynor amplifiers from the 1960's and 70's. 
 
 
 *​Notice of Non-Affiliation <br>
